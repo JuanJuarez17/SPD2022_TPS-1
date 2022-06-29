@@ -14,3 +14,8 @@
 #### Link: https://www.tinkercad.com/things/0gTOvGDxgND
 
 ---
+
+### TP_02 | Ahorcado
+#### Link: https://www.tinkercad.com/things/aEnzcleCdSy
+
+---
